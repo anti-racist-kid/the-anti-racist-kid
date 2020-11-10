@@ -1,5 +1,6 @@
-# What Is  Racism chapter 1. 
-What is race? Good question! When you hear the word race, you think of a car racing. But the one we are talking about is sader, and scarier. the only parts of race is as you might know of slavery or segregation. But race is a bit worse! See the pictures of Police using tear gas and black lives mater protesters.
+# What Is  Racism? 
+## Chapter 1
+What is race? Good question! When you hear the word "race," you might think of a car racing. But the meaning of race that we are talking about is sadder--and scarier. race started out with skin coller that divides people based on the color of their skin. It is not bsed on science. In the past, in our country, they had signs that would say things like "no dogs, Black people, or Italians" and "We want white people in this white country." The pieces of the racism puzzle you might have heard  of are slavery or segregation. Racism is hurtful! See the pictures of police using tear gas and Black Lives Mater protesters.
 
 <img style="width:50%" src="https://live.staticflickr.com/65535/49940105503_304ecfbbe3_b.jpg">
 
